@@ -1,1 +1,0 @@
-# FikriMedia.github.io
